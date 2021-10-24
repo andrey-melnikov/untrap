@@ -4,4 +4,4 @@ Download the app for [IOS in App Store](https://apps.apple.com/us/app/untrap-3d/
 
 For support write to **gbandrewgb@gmail.com**
 
-Privacy Policies are available through Google Play and App Store
+Privacy Policies are available through App Store
